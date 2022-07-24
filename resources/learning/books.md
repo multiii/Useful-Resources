@@ -20,4 +20,4 @@
 
 ## Language learning (Spanish)
 > Madrigal's Magic Key to Spanish: https://online.flippingbook.com/view/816700705/ \
-> Practice Makes Perfect: Spanish Vocabulary: https://online.flippingbook.com/view/816700705/
+> Practice Makes Perfect: Spanish Vocabulary: https://online.flippingbook.com/view/816002715/

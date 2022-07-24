@@ -17,3 +17,7 @@
 ## Health and wellbeing
 > The Oxygen Advantage: https://cdn.discordapp.com/attachments/994568786516652082/1000018929521021029/The_Oxygen_Advantage__Simple_Scientifically_Proven_Breathing_Techniques_to_Help_You_Become_Healthier_Slimmer_Faster_and_Fitter__PDFDrive_.pdf \
 > Breath: The New Science of a Lost Art: https://cdn.discordapp.com/attachments/994568786516652082/1000018395875508254/breath.pdf
+
+## Language learning (Spanish)
+> Madrigal's Magic Key to Spanish: https://online.flippingbook.com/view/816700705/ \
+> Practice Makes Perfect: Spanish Vocabulary: https://online.flippingbook.com/view/816700705/

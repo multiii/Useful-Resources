@@ -15,8 +15,8 @@
 > The Power Of Now: https://chools.in/wp-content/uploads/2021/03/THE-POWER-OF-NOW.pdf
 
 ## Health and wellbeing
-> The Oxygen Advantage: https://cdn.discordapp.com/attachments/994568786516652082/1000018929521021029/The_Oxygen_Advantage__Simple_Scientifically_Proven_Breathing_Techniques_to_Help_You_Become_Healthier_Slimmer_Faster_and_Fitter__PDFDrive_.pdf \
-> Breath: The New Science of a Lost Art: https://cdn.discordapp.com/attachments/994568786516652082/1000018395875508254/breath.pdf
+> The Oxygen Advantage: https://online.flippingbook.com/view/815931089/ \
+> Breath: The New Science of a Lost Art: https://online.flippingbook.com/view/816759270/
 
 ## Language learning (Spanish)
 > Madrigal's Magic Key to Spanish: https://online.flippingbook.com/view/816700705/ \

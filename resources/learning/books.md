@@ -1,5 +1,5 @@
 ## Charisma and relationships
-> The Charisma Myth: https://www.readpbn.com/pdf/The-Charisma-Myth-Sample-Pages.pdf \
+> The Charisma Myth: https://online.flippingbook.com/view/1041624007/ \
 > How to Win Friends and Influence People: https://images.kw.com/docs/2/1/2/212345/1285134779158_htwfaip.pdf
 
 ## Success and confidence
@@ -8,7 +8,7 @@
 ## Work and business-related
 > Deep Work: https://yes-pdf.com/book/366/read \
 > Atomic Habits: https://ia803401.us.archive.org/3/items/atomic-habits_202104/Atomic%20Habits.pdf \
-> The 4-Hour Work Week: https://tim.blog/wp-content/uploads/2014/10/the-4-hour-workweek-expanded-and-updated-by-timothy-ferriss.pdf \
+> The 4-Hour Work Week: https://online.flippingbook.com/view/1041976430/ \
 > The Millionare Fastlane: https://ia801009.us.archive.org/27/items/the-millionaire-fastlane-140113153049-phpapp01/the-millionaire-fastlane.pdf
 
 ## Mindfulness

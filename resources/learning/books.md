@@ -16,7 +16,7 @@
 
 ## Health and wellbeing
 > The Oxygen Advantage: https://online.flippingbook.com/view/815931089/ \
-> Breath: The New Science of a Lost Art: https://online.flippingbook.com/view/816759270/
+> Breath: The New Science of a Lost Art: https://online.flippingbook.com/view/816759270/ \
 > Full Body Home Workout (Workout Routine): https://flippingbook.com/account/online/201301508/edit/8
 
 ## Language learning (Spanish)

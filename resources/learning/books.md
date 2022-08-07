@@ -1,5 +1,5 @@
 ## Charisma and relationships
-> The Charisma Myth: https://online.flippingbook.com/view/1041624007/ \
+> [The Charisma Myth](https://pdfhost.io/v/6gCwKlqdB_The_Charisma_Myth_How_Anyone_Can_Master_the_Art_and_Science_of_Personal_Magnetism_Olivia_Fox_Cabane_zliborg) \
 > How to Win Friends and Influence People: https://images.kw.com/docs/2/1/2/212345/1285134779158_htwfaip.pdf
 
 ## Success and confidence

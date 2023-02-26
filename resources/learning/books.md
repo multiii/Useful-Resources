@@ -4,6 +4,7 @@
 
 ## Success and confidence
 > [The Magic of Thinking Big](https://todaygospel.net/wp-content/uploads/2022/03/THE-MAGIC-OF-THINKING-BIG.pdf)
+> [The New Psycho-Cybernetics](https://ia601903.us.archive.org/26/items/TheNewPsychoCyberneticsByMaxwellMaltz1/The%20New%20Psycho-Cybernetics%20by%20Maxwell%20Maltz%20%20%281%29.pdf)
 
 ## Work and business-related
 > Deep Work: https://yes-pdf.com/book/366/read \
